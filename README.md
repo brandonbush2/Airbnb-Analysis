@@ -3,7 +3,7 @@
 1. Nigel Mwangi
 2. Elly Kemboi
 3. Adnan Kibe Gitonga
-4. Brandon ABuga
+4. Brandon Abuga
 5. John Muriithi
 6. Kelvin Kariuki
 
